@@ -1,1 +1,1 @@
-# Thoughts
+We value each of our clients, therefore, high quality service is a priority for us. You can always ask your questions online or by phone and get detailed advice.Our specialists, qualified as a clinical psychologist, who deal with the psyche not only within the framework of the norm, but also work with pathologies of the psyche, mental illness. They work in teams with psychiatrists, neuropathologists and narcologists in clinics, hospitals, rehabilitation centers, as well as social institutions and centers for psychological assistance for children and adults.
